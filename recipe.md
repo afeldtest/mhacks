@@ -3,7 +3,7 @@ Aidan's Mom's Pumpkin Pie Recipe
 by Aidan Feldman
 
 * 2 cups of pumpkin pulp purée from a sugar pumpkin* or from canned pumpkin * purée
-* 1 1/2 cup heavy cream or 1 12 oz. can of evaporated milk
+* 1 1/2 cup 2% milk or 1 12 oz. can of evaporated milk
 * 1/2 cup packed dark brown sugar
 * 1/3 cup white sugar
 * 1/2 teaspoon salt
